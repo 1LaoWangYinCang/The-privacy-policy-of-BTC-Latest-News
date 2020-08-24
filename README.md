@@ -45,6 +45,6 @@ Account information -- If you want to access or edit personal information and pa
 V. How to update this Privacy Policy
 We may adjust or change this Privacy Policy in due course, and any update of this Privacy Policy will be posted on our website at the time of the update. Unless otherwise mandatory by laws, regulations or regulations, the content adjusted or changed will take effect 7 days after notice or publication. If you continue to use any of our services or visit our relevant websites after the policy has been adjusted or changed, we believe that you have fully read, understood and accepted the revised Privacy Policy and are bound by it.
 How to contact us
-If you have any questions, comments or Suggestions regarding this Privacy Policy, please contact us at  2314278292@qq.com
+If you have any questions, comments or Suggestions regarding this Privacy Policy, please contact us at  w1113096582@163.com
 
 As a rule, we will reply you within 30 days.
